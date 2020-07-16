@@ -12,4 +12,4 @@ https://youtu.be/lhIzylw9n3k
 
 Punto 3 (Ajuste de una recta):
 
-https://youtu.be/qqz-KsB1fx0
+https://youtu.be/Lt4z-UAYmrQ
